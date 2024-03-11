@@ -66,7 +66,7 @@ And the doors are closing. Everything about the seven-centered being was about f
 
 I'm a dualist. I can see the good, the bad, the holy and horrendous in anything. And I can see the horrendous in this as much as I can see the holy. Whenever you smell the nasty side, you look to the homogenized world because it takes everything out of balance. These basic themes have been distorted. This is what we have. We have a world in which the underlying magic, the underlying beauty, the underlying magnificence of what it is to be a nine-centered being, we are incredible creatures.
 
-_Advanced Mechanics I is a program of the International Human Design School (HDS)_You know those wonderful flowers, you wait for them and you wait for them and you wait for them and they come, and they don't stay long. I have a pond. Every once in a while there is a water lily. There's nothing more beautiful, at least in my eye, than a water lily, fresh, just opening up in the light floating on the water. It's a magnificent thing. Then it's gone. That's us. That is where we are. That is what the nine-centered being is about. We are transitional form. We are walking out of the human process, entering in to a rave process. This is the end.
+You know those wonderful flowers, you wait for them and you wait for them and you wait for them and they come, and they don't stay long. I have a pond. Every once in a while there is a water lily. There's nothing more beautiful, at least in my eye, than a water lily, fresh, just opening up in the light floating on the water. It's a magnificent thing. Then it's gone. That's us. That is where we are. That is what the nine-centered being is about. We are transitional form. We are walking out of the human process, entering in to a rave process. This is the end.
 
 It doesn't matter that it takes one thousand plus years; it's not the point. In evolutionary time this is absolutely nothing. It's about now. It's about understanding that if we don't take this shroud off our shoulders we are going to be tormented by the primitive root of all capture, the distortion of it that we must bow down, that we are either novice or master in the way the homogenized world moves over us. We're caught in it. How distorting it becomes. And it's dangerous. It's infective. It's the great externalizing agent.
 
@@ -96,7 +96,7 @@ You take any line and you know that there are zillions of people who have that l
 
 ## The Importance of the Correct Relationship of the Color to the Line
 
-Have you ever seen one of those terrible audition scenes where you have 20 people who are going to read the same line to try to get the job? This is what the line is; it's a line. This is the mask. This is the way the shell interacts with other shells. It's the script you're given. But what do you bring to it? The only thing you can bring to it, there is only one thing that is going to make a difference and that's the relationship of the Color to that line. Because we know that if the relationship of the Color to the line is correct, everything else from beneath is going to move through.So it's this relationship between the Color and the line. When you're dealing with homogenized society, they're all doing the script the same way. They're all doing the lines the same way. There is no life there. When I began as a professional doing readings, it was an amazing thing for me\(-\)after all, I wasn't into any of this kind of stuff\(-\)that I could just read people. It was even more amazing that they saw themselves. This was the beginning of a process. But I noticed something right away. I noticed that the vast majority of the people I worked with, their particular activations always carried the same flavor. For me, this is really what the 4 does. It brings a certain flavor.
+Have you ever seen one of those terrible audition scenes where you have 20 people who are going to read the same line to try to get the job? This is what the line is; it's a line. This is the mask. This is the way the shell interacts with other shells. It's the script you're given. But what do you bring to it? The only thing you can bring to it, there is only one thing that is going to make a difference and that's the relationship of the Color to that line. Because we know that if the relationship of the Color to the line is correct, everything else from beneath is going to move through.So it's this relationship between the Color and the line. When you're dealing with homogenized society, they're all doing the script the same way. They're all doing the lines the same way. There is no life there. When I began as a professional doing readings, it was an amazing thing for me after all, I wasn't into any of this kind of stuff that I could just read people. It was even more amazing that they saw themselves. This was the beginning of a process. But I noticed something right away. I noticed that the vast majority of the people I worked with, their particular activations always carried the same flavor. For me, this is really what the 4 does. It brings a certain flavor.
 
 ### The 4 Brings a Certain Flavor
 
@@ -182,7 +182,7 @@ But it leaves you with something truly to ponder. That is, look at all those ele
 
 Well, I'm not used to doing 90 minutes. I kept on wondering what time it was. That's an interesting experience. We'll start off here. I'll see where I go; I'll wait until tomorrow to sort of figure out where I'm going to take you in our ongoing adventures. But I'm certainly glad to see all of you; it's nice to see all of you back in the classroom, particularly at this level. I think we're going to have an interesting time. Anyway, to all of you, keep those 4s in mind and enjoy that. Until next time, Dye for now.
 
-_Advanced Mechanics I is a program of the International Human Design School (HDS)__Advanced Mechanics I_ _is a program of the International Human Design School (IHDS)_
+ 
 
 ## 11 The Four-ness of the Future
 
@@ -192,11 +192,11 @@ Welcome to all of you. This is really an incredible subject. It is the last day 
 
 
 
- Copyright 2008 J
+ 
 
 [MISSING_PAGE_FAIL:20]
 
-that's just next to it, that is a measurement that is so tiny that most human beings are incapable of thinking of something that small. So, please don't think that it's suddenly going to be 89\({}^{\circ}\) or 87\({}^{\circ}\).
+that's just next to it, that is a measurement that is so tiny that most human beings are incapable of thinking of something that small. So, please don't think that it's suddenly going to be 89 or 87.
 
 Is it arcane? I don't know what you call this kind of thing. It's one of those odd pieces of information I have that allows me, because I'm always looking for the mechanical solution, to really be able to see and understand why the 4--it's ok that the 4 is responsible for that, that's easy to understand--but why there is the shift. And the shifting of the reception is something that is really quite remarkable, because I think that is tied to much larger cycles that, in essence, is the closest I've come in the star work that I did in Rave Cosmology. This angle, the way the angle works is very much connected to the way in which the star field moves. But that's really a--yeah, we have a lot of time in these classes, but still that would be a long way to go, so I'm not going to go there. Maybe one day, Deborah, you go there.
 
@@ -410,10 +410,10 @@ It's interesting, each of these 16 ways because they are ways. They are ways of 
 
 
 
- Copyright 2008 J
-## Advanced Mechanics I
+ 
+## 
 
-A Digital Book for Advanced Students
+
 
 So this is where we got to when we began our little journey last week of me trying to give you a clean, simple way of understanding the phenomena of the 4. It takes us into strange ground, doesn't it? It takes us into the way the whole movie works, in a way. It leads us into this odd future where we get to see it. And we get to see it with a lot more drama because we can begin to imagine what it looks like even though our imagination compresses the phenomena that will arise. Everything moves at its own pace.
 
@@ -469,7 +469,7 @@ Now, by the way, this is not necessarily a continuing trend at all. It is intere
 
 I want to show you something else. It's interesting. This is 1781 to 2027. When you're looking at this, what is interesting for me, and again, it's not a trend that is going to stay, but at the same time there is a downward movement, particularly a downward movement since around the beginning of the First World War. There are a couple of spikes that you can see, but basically there is this drift in terms of the far lefts, obviously, that are coming into the world. Again, there is going to be obvious relative differences between the various Variable groupings. You can see that the birth rate hasn't been taken into consideration yet. We're looking at sketches, statistical sketches.
 
-_Advanced Mechanics I is a program of the International Human Design School (HIDS)_
+
 
 ## The DRR-PRR (1781-2027) Graph
 
@@ -501,7 +501,7 @@ But it is something to see the preparation that is built up in the Program. Obvi
 
 **It, ultimately, is one way. And as we know, as one way, they're linked to each other. But again, I want to go back to these two elements in their extremes. After all, this is an aspect of their interpretive value, to look at them as both source and expression. Let's think about what the Link Nodes do for us. The first thing we know about the Nodes is that what we're looking at between the Design and the Personality is a very different configuration. We're looking at a different configuration because, in fact, the Personality and the Design Crystal are very different from each other. The way they operate is different from each other. And, in fact, the stability of the crystal itself is different.**
 
-**Advanced Mechanics I is a program of the International Human Design School (HIDS)**This is a truly stable crystal, stable with this construct and the 5th Base in the center. This is the unstable crystal, and the unstable crystal with the 3rd Base in the center. Since there is a shift in these central components in the construct, we have a shift in the way in which the outside is configured. And of course, this is what leads us to be able to see the Link Nodes themselves.
+** is a program of the International Human Design School (HIDS)**This is a truly stable crystal, stable with this construct and the 5th Base in the center. This is the unstable crystal, and the unstable crystal with the 3rd Base in the center. Since there is a shift in these central components in the construct, we have a shift in the way in which the outside is configured. And of course, this is what leads us to be able to see the Link Nodes themselves.
 
 So, as an example, when we're looking over here and again, the 2 is often confusing because it's the same on both sides, that we know that this is the Personality Link Node, this South Link Node. So we see it here. And when we're looking at the Design side, we're looking at the Design North Node and we can see here with the Base orientation to the 1 below, so it belongs over here. What we get is, when we cross them over, if we take them and move them over, so we move that one _[Design North Node]_ so it is over there _[lower right side]_ and we move this one _[Personality South Node]_ so it's over here _[lower left side]_, we can see what happens in the linkage. We get something very important.
 
@@ -546,17 +546,17 @@ So, the emphasis changes; the emphasis moves to the North Nodes. And of course, 
 
 Now, of course, we know there are many things that can make this problematic. What we well know is that in dealing with the tonal configuration and distraction at the nodal level, to understand how powerful distraction is, to see that obviously can completely distort the way in which one is being oriented once one gets into that second half of one's life.
 
-## Appendix D Advanced Mechanics I
+## Appendix D 
 
-A Digital Book for Advanced Students
+ 
 
 ### 1.1 The 40.3: A Denial Body
 
 One of the few things we have not discussed at the deeper level is what happens when you take all of this stuff that we know underneath the surface and bring it to the surface, like here, when you bring it to the gate. And to begin to see through this gate and through this line that this is what it's all about. I'll deconstruct this for you. If you take the 40.3, what you're looking at is the overall way in which this body has to operate. It's about the body.
 
-#### 1.1.1 Advanced Mechanics I is a program of the International Human Design School (IHDS)
+#### 1.1.1  
 
-All Rights Reserved. Copyright 2008 Jovian Archive CorporationSo, what you're going to have is a denial body. It's a body that's ready to deny things. It's a body that is ready to shrug; it's a body that is ready to back off. It's all part and parcel of transposing the understanding of the gate to the form principle. We also know what the 3 is; it's very hardy. The 3rd line body is a tough body. It can really take a beating. It can take a beating and come right back up.
+ ovian Archive CorporationSo, what you're going to have is a denial body. It's a body that's ready to deny things. It's a body that is ready to shrug; it's a body that is ready to back off. It's all part and parcel of transposing the understanding of the gate to the form principle. We also know what the 3 is; it's very hardy. The 3rd line body is a tough body. It can really take a beating. It can take a beating and come right back up.
 
 _[Note: When asked about interpreting the body at the design nodal-line level, Ra said: It is more of a generalized reference to the holistic value of lines. It does not carry the weight of the internal at all, but all values are in all places, i.e.; genetic continuity.]_
 
@@ -676,7 +676,7 @@ _Question: Can you say that the two South Nodes have to be developed between 30 
 
 **Ra:** Basically, Elfriede, yes. That is the important transitional area. That is the 30 to 40 has to be fulfilled, the 40 to 50 on the other side is the beginning of the other. But it really is a split in the middle.
 
-More interesting in your question is the reference to the difference to the South Nodes. Obviously, the Design Node has superiority\(-\)seniority, that's better. The Design Node has seniority over the Personality Link South Node in that obviously it is earlier in the Program. Again, this would come to one of analytical issues. I'm going to continue, by the way, with these in later lectures so we can continue looking at many of these elements. I just want to bring in some other factors.
+More interesting in your question is the reference to the difference to the South Nodes. Obviously, the Design Node has superiority seniority, that's better. The Design Node has seniority over the Personality Link South Node in that obviously it is earlier in the Program. Again, this would come to one of analytical issues. I'm going to continue, by the way, with these in later lectures so we can continue looking at many of these elements. I just want to bring in some other factors.
 
 Ok, Kumud, try again.
 
@@ -704,7 +704,7 @@ Day by day as I go through teaching, it becomes clearer and more evident to me t
 
 Anyway, it's all interesting. Thanks to all of you. Thanks to you Adrian. Take care; bye for now.
 
-_Advanced Mechanics I is a program of the International Human Design School (HIDS)__Advanced Mechanics I_ _is a program of the International Human Design School (IHDS)_
+ 
 
 ## 11 **Lesson Four**
 
@@ -762,7 +762,7 @@ So when we're talking about Link Nodes we're not just talking about the Nodes, w
 
 
 
- Copyright 2008 J
+ 
 
 ### 4.2.1 Tonal Transposition is the Key Ingredient for Life
 
@@ -796,7 +796,7 @@ Now, remember, you're going to have the North Node movement coming across and, o
 
 So, let's look at something. I want to take you back so you can see both at the same time. So we have the Normal up here and we have the Transposition down here, so we can see the differences, in that sense. Okay, so let's go over here to the top. Let's begin on the Design side. We know when we're looking at the Design side, obviously this is environmental, and we know that as far as the Color is concerned that this is going to be the environmental shores and the basic things we know about the values of that. And in the context of the environment, what the Tone is going to bring.
 
-_Advanced Mechanics I is a program of the International Human Design School (HIDS)_But remember, what we're particularly interested in here is this frequency. We're interested in the Right frequency. Remember that when we are looking at the body relative to the Design external, we can see whether the body, generally speaking within the environment, is going to be active or passive. So what we know here is that this is designed to be a passive vehicle.
+But remember, what we're particularly interested in here is this frequency. We're interested in the Right frequency. Remember that when we are looking at the body relative to the Design external, we can see whether the body, generally speaking within the environment, is going to be active or passive. So what we know here is that this is designed to be a passive vehicle.
 
 Now remember that it's coming from the other side where it's been very active. The setup on the other side to the Left is much more strategic. But what's very important is that the moment that the view is correct, there is this deep, deep, deep calmness in the vehicle.
 
@@ -926,7 +926,7 @@ I am very interested in building up this tonal centric surface, to see the surfa
 
 All right, I'm still not used to doing 90 minutes but anyway, I'm working on it in. I hope you enjoyed that. We have some wonderful material to cover in all of this. So, we'll keep at it. And to those of you I will see later, I won't be in the class until about five minutes before. This is a great doubleheader for those of you who are doing both because I have a fantastic _Personality Resonance_ coming. To those of you I won't see later, I'll see you next week. Until then, by for now.
 
-_Advanced Mechanics I is a program of the International Human Design School (HIDS)__Advanced Mechanics I_ _is a program of the International Human Design School (IHDS)_
+ 
 
 ## 11 **Lesson Five**
 
@@ -990,7 +990,7 @@ Let's go back to our theme of tonal transposition and see if we can work that on
 
 The other thing is, and again, I'll remind you about how you use this. You don't use this information in the same way. The next thing is we look at the Design Link Node. You can see the Base orientation is the 5 _[black arrow]_. Obviously, it doesn't belong here. It belongs over here where it is the centerpiece of this _[blue arrow]_ and of course, the 59.4 goes down here _[orange arrow]_. And we see that this is moving from a 1 to a 6 _[green arrow]_ in terms of the tonal transposition.
 
-_Advanced Mechanics I is a program of the International Human Design School (IHDS) All Rights Reserved.
+ 
 I did that fast, I hope that was ok and you got that. At first it can seem confusing. It confused me at times; particularly when you're looking at the two and you're trying to work it out because it's an odd way to see the Nodes. Again, it's very straightforward in the way in which the mechanism operates. We're just crossing them over and in doing so what you're looking for is obviously the change that's going to take place tonally.
 
 So here we have the transposition that has taken place and the background of this--because again remember, one of my goals today is to give you a way to try to bring your PHS and Rave Psychology independent Variable knowledge to the surface so that you can actually bring it to the charts that you look at. It is one of the things that the more familiar you are with that--I'm teaching you basic nine-centered sootshaying. That's really what it is. It's a way of being able to see the story line and the quality of the character of that story line. But anyway, we'll get there.
@@ -1031,17 +1031,17 @@ Cognitive potential: think about what this really means. This is not an intellig
 
 Remember what we're dealing with. We're dealing with Tone. Tone infuses everything with cognitive potential. So what that means is that the moment you're aligned correctly, the moment your orientation is correct, the moment you're there in the environment with the right perspective, you have a flood of cognitive potential that is part of the way you live out your story. Because it's the way in which the depth at which the nuance of which you're going to be taking things in.
 
-_Advanced Mechanics I is a program of the International Human Design School (HDS)_So, we have these two aspects. When you go over to the Personality side, you can see that what has happened here to the Node _[Design North Node]_ that was over here _[red X]_, is the way the Design is going to operate in its future--88\({}^{\circ}\) of the Sun difference. It's an interesting thing to think about. The way in which it's going to be able to use what it's taking in _[Tone 6]_, because that's basically what this is about, how do you use what you've taken in? And of course, the way you can use it is going to be determined by whether it's going to be strategic or it's going to be receptive; whether it is going to be peripheral or it's going to be focused is more accurate.
+So, we have these two aspects. When you go over to the Personality side, you can see that what has happened here to the Node _[Design North Node]_ that was over here _[red X]_, is the way the Design is going to operate in its future--88 of the Sun difference. It's an interesting thing to think about. The way in which it's going to be able to use what it's taking in _[Tone 6]_, because that's basically what this is about, how do you use what you've taken in? And of course, the way you can use it is going to be determined by whether it's going to be strategic or it's going to be receptive; whether it is going to be peripheral or it's going to be focused is more accurate.
 
 Here you can see that it's going to be peripheral, that it needs to work peripherally. Otherwise, it wouldn't work. So, this is allowing a cognitive flow of information to go back and forth across this. And it's going back and forth across this through the agency of the Magnetic Monopole with its attraction frequency, capture frequency. So here we are held together, and layered on top of that is our story. What we bring to our story is our cognitive potential. And it says a lot.The Design of the Cognitive Potential: The 30.6
 
-Seeing\(-\)I talk a lot about seeing and this is where seeing take place. But we all see differently. And even though our perspective, as we know, is framed within what is, in fact, six basic possibilities, each of those six basic possibilities have hundreds if not thousands of variations. Think about this one in this particular case. In this particular case, let's begin with looking at the Design of our cognitive potential. What we know about the design of the cognitive potential is that we're dealing with the 30th gate. We have the South Node in the 30th gate of desire. It's a gate of fates, the Clinging Fire, and the 6th line, Enforcement, _the discipline to maintain right action_ and the discipline to maintain right action with a very active* connection to that.
+SeeingI talk a lot about seeing and this is where seeing take place. But we all see differently. And even though our perspective, as we know, is framed within what is, in fact, six basic possibilities, each of those six basic possibilities have hundreds if not thousands of variations. Think about this one in this particular case. In this particular case, let's begin with looking at the Design of our cognitive potential. What we know about the design of the cognitive potential is that we're dealing with the 30th gate. We have the South Node in the 30th gate of desire. It's a gate of fates, the Clinging Fire, and the 6th line, Enforcement, _the discipline to maintain right action_ and the discipline to maintain right action with a very active* connection to that.
 
 In other words, when this person is correct, they are rigidly correct. _An assertiveness to purge the inferior while accepting to lead the weak._ We're beginning to get the way in which this seeing is going to work, to look for things, to be able to see things that are going to be a benefit to others, the strength to eliminate negative feelings. There are all kinds of things that are here that become part of the way in which the cognitive potential is going to operate.
 
 Remember, this is the physical side. And as the physical side, we have to see that we're dealing with certain things. For example, we are dealing with the influence of what it is to be 6, what it is to be not designed to pay attention to what is really around you but to see beyond, so you know that the cognitive potential being guided by that 6th line is really looking off into things. You have somebody who isn't particularly focused on seeing things to resolve them in the moment. It's not there. It's looking beyond. And it's looking filled with a desire and a desire that is deeply active.
 
-_Advanced Mechanics I is a program of the International Human Design School (HDS)_
+
 
 ### 4.2.1 Total Transposition of the 55 Gate Design South Node
 
@@ -1051,9 +1051,9 @@ It's one of the most fantastic things to understand about tonal transposition be
 
 Ok, the other side is the 59.4. This 55-59 opposition, obviously the 59 gate is also going to be under extraordinary pressure. Again, you're dealing with an emotional aspect which is part of the emotional authority. It means that it's going to be very difficult for this person to keep their vision correct if their emotional system does not operate correctly. It is their authority. That patience is going to be the only way they're going to find the ability to be able to truly drop their barriers.
 
-### 4.2.2 Advanced Mechanics I is a program of the International Human Design School (IHDS)
+### 4.2.2  
 
-All Rights Reserved. Copyright 2008 JIt's interesting in the line 59.4, brotherhood/sisterhood, that we have moved over to the peripheral. It's much more open, very, very open to looking out, but looking out in a very, very human way. You're dealing with the 59th gate. This is a genetic role gate. So the cognitive potential here is very much connected with the other, very much connected with seeing the inferior in the other and working with that. In other words, this is going to establish very profoundly the way in which the ultimate view is going to work because it is bringing all of these deeper qualities to the superficial keynote of whatever the particular view happens to be.
+ It's interesting in the line 59.4, brotherhood/sisterhood, that we have moved over to the peripheral. It's much more open, very, very open to looking out, but looking out in a very, very human way. You're dealing with the 59th gate. This is a genetic role gate. So the cognitive potential here is very much connected with the other, very much connected with seeing the inferior in the other and working with that. In other words, this is going to establish very profoundly the way in which the ultimate view is going to work because it is bringing all of these deeper qualities to the superficial keynote of whatever the particular view happens to be.
 
 ### Cognitive Potential is Tonal--Story Line is Shaped by Color
 
@@ -1065,7 +1065,7 @@ That story line is something that is going to be built on a specific environment
 
 ## Appendix A 20 Year Story Line
 
-Now, the story is what most people are interested in. What's going to happen to me? That kind of thing, that kind of story. But what we understand about the external is that it is not the story line of the life. It's not. It is a 20 year\(-\)it's like the Bhagavad Gita or one of those ancient Indian books, and they made it into a movie. I think it lasted like 10 days or something. It went on forever. This is basically a 20 year story line, to be accurate. This is basically what it is.
+Now, the story is what most people are interested in. What's going to happen to me? That kind of thing, that kind of story. But what we understand about the external is that it is not the story line of the life. It's not. It is a 20 year it's like the Bhagavad Gita or one of those ancient Indian books, and they made it into a movie. I think it lasted like 10 days or something. It went on forever. This is basically a 20 year story line, to be accurate. This is basically what it is.
 
 Again, remember the development of children. By the way, coming up after _The Mechanics of the Maya_ series that I'm doing now on Jovian TV, I'm doing something called _The School of Enlightened Selfishness_. I start filming them next week or the week after. The first three are examinations of the true nine-centered life. So, I'm going to do a birth to Saturn, a Saturn to Kiron, and a Kiron beyond, and lay out formally the dynamics of the true nine-centered life.
 
@@ -1087,7 +1087,7 @@ Understand this concept or this keynote of story line. I like to attach things t
 
 Again, we've deconstructed. Here particularly, we're looking at a very, very deconstructed area. See what this story line is really about it. It is setting the thematic atmosphere for the correct life, that thematic atmosphere of bringing your cognitive gift that arises in the right environment with the right perspective to be able to find those beings you can assimilate with, those beings who are going to enrich your life as you enrich theirs and bring success.
 
-Without the assimilation it doesn't work. Here is somebody, that within their design, they are a 59/6, 40/37\(-\)two of the three social channels. The 40/37, the channel of Community and Assimilation. All of those things are deeply integrated into their design. To look at this person on the surface is very simple for me because I know the one thing that is getting in the way is their emotional system. It's a very, very powerful emotional system. It's very easy for that emotional system to absolutely distort this life. You have somebody with a totally open G Center, so they're very, very vulnerable at the identity level. It's very easy for them to be overwhelmed emotionally.
+Without the assimilation it doesn't work. Here is somebody, that within their design, they are a 59/6, 40/37 two of the three social channels. The 40/37, the channel of Community and Assimilation. All of those things are deeply integrated into their design. To look at this person on the surface is very simple for me because I know the one thing that is getting in the way is their emotional system. It's a very, very powerful emotional system. It's very easy for that emotional system to absolutely distort this life. You have somebody with a totally open G Center, so they're very, very vulnerable at the identity level. It's very easy for them to be overwhelmed emotionally.
 
 Again, there are so many factors in what brings perfection into a life. That 55.4, again we have to see that from the physical point of view. This person needs to be in that environment where assimilation is going to take place. Yet, at the same time, they have to be physically healthy which means that their dietary regimen is very, very important to them. All of these things come into place because we see here in the story line that Color is very, very important.The Personality North Node 29.6 Story Line
 
